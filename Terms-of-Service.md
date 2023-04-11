@@ -22,7 +22,7 @@ The owner of the bot may not be made liable for individuals breaking these Terms
 For any questions or concerns regarding the privacy policy, please send me an email to jeongathanasio@icloud.com or discord to PigSoup#1111.
 
 
-##Latest Update
+## Latest Update
 
 04/11/2023
 
